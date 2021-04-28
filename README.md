@@ -11,4 +11,3 @@ Just another curious Homosapien in the milky way making a difference a line of c
   - [Linkedin](https://www.linkedin.com/in/adepoju/)
   - [Twitter](https://twitter.com/Oluwasegun_AA)
   - [Instagram](https://www.instagram.com/oluwasegun_aa/)
-  - [Whatsapp](https://wa.link/ynvuqt)
